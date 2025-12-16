@@ -35,4 +35,4 @@ I create apps, games, tools and tutorials under my brand DSY Digital.
 ---
 
 ## 📩 Contact
-**deepsinghyadav@gmail.com**
+**deepsinghyadav22@gmail.com**
